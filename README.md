@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @sajjadkhan9952
-- 👀 I’m interested in geoatic engineer
+- 👀 I’m interested in geomatic engineer
 - 🌱 I’m currently learning master's of scince in geodesy
 - 💞️ I’m looking to collaborate a software job and making money to study phd
 - 📫 How to reach me please send me message in telegram by the id:@sajjadshr
